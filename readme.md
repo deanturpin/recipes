@@ -1,3 +1,9 @@
+# Hibiscus tea
+- 65g hibiscus
+- 10g dried lemons
+- Pinch of rose petals
+- Teaspoon of chamomile
+
 # Bloody Mary
 
 - vodka
